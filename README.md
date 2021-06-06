@@ -1,0 +1,1 @@
+# terms_of_use_of_edi_point_for_buyer
